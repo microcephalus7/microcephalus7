@@ -2,7 +2,7 @@
 
 </br>
 
-Web Front End Engineer
+Web Front End Developer
 
 </br>
 
